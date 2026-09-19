@@ -6,11 +6,22 @@
 ⋆*･ﾟ:⋆*･ﾟ☽ {𝑾𝒆𝒍𝒄𝒐𝒎𝒆 𝒕𝒐 𝒎𝒚 𝑷𝒂𝒈𝒆!} ☾ ⋆*･ﾟ:⋆*･ﾟ
 
 𝙽𝚊𝚖𝚎➳ Nyx
-𝙿𝚛𝚘𝚗𝚘𝚞𝚗𝚜➳ They/Them
+
+𝙿𝚛𝚘𝚗𝚘𝚞𝚗𝚜➳ They/Them (genderfluid)
+
+Age: 16
+
+𝚂𝚎𝚡𝚞𝚊𝚕𝚒𝚝𝚢➳ Pansexual
+
+Fandoms➳ Transformers, Metal Cardbots, Ninjago, Murder Drones, Tekkaman, Bpj-d, Minecraft args, Pokemons, Piggy, Sonic, Knight Rider, Cookie Run Kingdom
+
+🪽
+
+Games I play➳ Minecraft, Roblox, Fortnite, Brawl Stars, Pony Town, 
+
 𝙾𝚝𝚑𝚎𝚛 𝚜𝚘𝚌𝚒𝚊𝚕𝚜➳ 
 - dsc; @silly._.dude01
 - tt; @_goodnessofthenight_
-𝚂𝚎𝚡𝚞𝚊𝚕𝚒𝚝𝚢➳ Pansexual
 
 𖥔 ݁ ˖   ✦    ‧₊˚ ⋅
 
