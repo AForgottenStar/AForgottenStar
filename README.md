@@ -9,7 +9,7 @@
 
 𝙿𝚛𝚘𝚗𝚘𝚞𝚗𝚜➳ They/Them (genderfluid)
 
-Age: 16
+Age: 17
 
 𝚂𝚎𝚡𝚞𝚊𝚕𝚒𝚝𝚢➳ Pansexual
 
